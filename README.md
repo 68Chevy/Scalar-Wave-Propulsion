@@ -1,4 +1,4 @@
-# Scalar-Wave-Populsion
+# Scalar-Wave-Propulsion
 **ATTENTION ATTENTION ATTENTION***
 New AWS Keys for the Scalar Wave Propulstion Technology - Not For Public Release
 
